@@ -7,7 +7,7 @@
 - **Address:** 308 Negra Arroyo Lane, Albuquerque, NM
 - **Phone:** (505) 555-0100
 - **Email:** skyler.white@imawhore.com
-- **private contact:** [google chat](https://www.youtube.com/watch?v=n_GiCz7nPsU)
+- **Private contact:** [Google Chat](https://www.youtube.com/watch?v=n_GiCz7nPsU)
 
 ---
 
